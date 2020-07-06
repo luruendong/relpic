@@ -1,1 +1,1 @@
-![dasd]（https://github.com/luruendong/relpic/blob/master/aadsada.png）
+![image]（https://github.com/luruendong/relpic/blob/master/aadsada.png）
